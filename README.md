@@ -1,1 +1,0 @@
-# zurichsky.github.io
